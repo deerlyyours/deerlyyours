@@ -27,6 +27,7 @@ i dont care much about u, but i wouldnt mind if u liked me too!
   <br>i DONT like ragebait unless we're very close and u know my limits ⸝⸝
   <br>i have anger issues and i can be quick to falling into a bad mood ⸝⸝
   <br>i have memory issues, and am likely to forget things about u or things u told me ⸝⸝
+  <br>i DONT use tonetags unless absolutely necessary ⸝⸝
 </details>
   
 <details><summary><sup><sub> [ </sub></sup> dni <sup><sub> ]</sub></sup></summary>
