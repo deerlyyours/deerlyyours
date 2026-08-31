@@ -33,7 +33,6 @@ i dont care much about u, but i wouldnt mind if u liked me too!
   <br>,,21+ years old
   <br>,,14- years old
   <br>,,proship, profic and things alike
-  <br>,,paras
   <br>,,just general weirdos ya kno .. "^_^
   <br>,,more of a IWEC, but object show fans (unless we're already friends)
 </details>
