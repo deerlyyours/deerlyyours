@@ -39,6 +39,7 @@ i dont care much about u, but i wouldnt mind if u liked me too!
   <br>,,more of a IWC, but object show fans (unless we're already friends)
   <br>,,tccers and people that glorify real life perpetrators 
   <br>,,transphobes, homophobes, radqueers, racists and preds
+  <br>,,invasive people
 </details>
 </th></table>
 
