@@ -1,6 +1,6 @@
 <p align="center">
 <sup><sub>" </sub></sup>
-i dont care much about u, but i wouldnt mind if u liked me too!
+no one ever asked before, before,, because they never needed me,, but he does!
  <sup><sub> "</sub></sup>
 </p>
 <p dir=auto>
