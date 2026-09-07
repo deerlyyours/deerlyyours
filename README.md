@@ -1,6 +1,6 @@
 <p align="center">
 <sup><sub>" </sub></sup>
-no one ever asked before, before,, because they never needed me,, but he does!
+the piece of mind that made god is dead, so lets discard it!
  <sup><sub> "</sub></sup>
 </p>
 <p dir=auto>
