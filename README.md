@@ -1,6 +1,6 @@
 <p align="center">
 <sup><sub>" </sub></sup>
-the piece of mind that made god is dead, so lets discard it!
+i dont exist, its in my head!
  <sup><sub> "</sub></sup>
 </p>
 <p dir=auto>
