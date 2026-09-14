@@ -15,7 +15,7 @@ i dont exist, its in my head!
 <sup><sub> </sub></sup>
   <br>joey ₒᵣ‎ ryan
  <br>⸝⸝ he / it strictly |  5teen  |  sweet cervidae ❤︎ 
- <br> `` autism + dpdr + heds + paranoia (extreme at times)
+ <br> `` autism + dpdr + heds + paranoia (extreme at times) + ocd
  <br> TF2 FANS INT PLEASE I LOVE TF2 ITS MY SPECIAL INTEREST YO,, IREALLY NEED TF2 FRIENDS & METALOCALYPSE FRIENDS
  <br> pyros loverboy,, ❤︎
 <sup><sub> </sub></sup>
