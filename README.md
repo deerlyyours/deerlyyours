@@ -1,6 +1,6 @@
 <p align="center">
 <sup><sub>" </sub></sup>
-i dont exist, its in my head!
+i dont see what anyone could see in anyone else,, but you!
  <sup><sub> "</sub></sup>
 </p>
 <p dir=auto>
