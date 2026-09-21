@@ -23,7 +23,7 @@ i dont see what anyone could see in anyone else,, but you!
 
 <table align="right"><th>
 <details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
-  <br>im a pyro selfshipper and a fickin (not as pyro),, i would prefer if dbls didnt interact,, shrug! ⸝⸝
+  <br>im a pyro selfshipper and a fickin (not as pyro),, i would prefer if dbls didnt int but i generally dont mind them ⸝⸝
   <br>i DONT like ragebait unless we're very close and u know my limits ⸝⸝
   <br>i have anger issues and i can be quick to falling into a bad mood ⸝⸝
   <br>i have memory issues, and am likely to forget things about u or things u told me ⸝⸝
