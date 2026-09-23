@@ -1,6 +1,6 @@
 <p align="center">
 <sup><sub>" </sub></sup>
-lovers,,, together,, i need her, i need her!
+lovers,, together,, i need her, i need her!
  <sup><sub> "</sub></sup>
 </p>
 <p dir=auto>
